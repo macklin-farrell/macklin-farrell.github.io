@@ -36,4 +36,4 @@ October 2019 – Present
 - Lead staff training, conflict resolution, and team development to ensure smooth operations.  
 - Recognized for reliability, leadership, and ability to manage high-pressure situations.
 
-<https://imgs.search.brave.com/NS1HzLzKAwiOUCm1BEUkPs6r7kugJgQTJ6AEiEnCWPs/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly93d3cu/dXdiLmVkdS93cC1j/b250ZW50L3VwbG9h/ZHMvMjAyMy8wNi93/LWxvZ28taWNvbi5w/bmc> 
+(https://imgs.search.brave.com/NS1HzLzKAwiOUCm1BEUkPs6r7kugJgQTJ6AEiEnCWPs/rs:fit:860:0:0:0/g:ce/aHR0cHM6Ly93d3cu/dXdiLmVkdS93cC1j/b250ZW50L3VwbG9h/ZHMvMjAyMy8wNi93/LWxvZ28taWNvbi5w/bmc)
